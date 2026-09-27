@@ -1,1 +1,1 @@
-# Second-Try-
+# Second-Try-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=eireannc&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=eireannc&redirect=true)
